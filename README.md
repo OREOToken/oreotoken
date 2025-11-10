@@ -27,7 +27,7 @@ The project promotes transparency, sustainable rewards, and long-term community 
 - **Website:** [https://oreotoken.site](https://oreotoken.site)  
 - **Whitepaper:** [OREO Token Whitepaper v2 (PDF)](https://oreotoken.site/assets/OREO_Token_Whitepaper_v2.pdf)  
 - **Telegram:** [@oreotokenarg](https://t.me/oreotokenarg)  
-- **X (Twitter):** [@oreotokenarg](https://x.com/oreotokenarg)
+- **X (Twitter):** [@OREOTokenOK](https://x.com/OREOTokenOK
 
 ---
 
